@@ -1,1 +1,6 @@
-# vasikar reddy
+# vasikar
+nick name
+okapudu
+epudu 
+kanna
+143
